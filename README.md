@@ -9,4 +9,4 @@ Things I like
 - Spending time with my nephews and nieces
 - Travelling
   
-![Bild web Developer](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExM3liZmE4aXAxMHBhNWhtcXN5YmtuZ292bGp1N3F5eWZldzN3ODQwaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/QKkV58ufpV4ksJ1Okh/giphy.gif)
+![Bild web Developer](https://a.cdn-hotels.com/gdcs/production19/d1430/c53e41bd-1e9b-4c80-b15b-01e81b1c4679.jpg?impolicy=fcrop&w=800&h=533&q=medium)
