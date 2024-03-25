@@ -9,6 +9,6 @@ Things I like
 - Spending time with my nephews and nieces
 - Travelling
   
-![Bild von Hamburg](https://a.cdn-hotels.com/gdcs/production19/d1430/c53e41bd-1e9b-4c80-b15b-01e81b1c4679.jpg?impolicy=fcrop&w=800&h=533&q=medium)
+![Bild von meinem Arbeitsplatz](https://raw.githubusercontent.com/evabergold/evabergold/main/20240325_094026.jpg)
 
 ![Visitor Count](https://profile-counter.glitch.me/{evabergold}/count.svg)
